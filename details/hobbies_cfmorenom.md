@@ -7,7 +7,7 @@
 
 ## Hobbies de stebanapontebernal-glitch
 
-*Jugar Futbol 
-*Leer
-*Descansar 
-*Aprender 
+* Jugar Futbol 
+* Leer
+* Descansar 
+* Aprender 
